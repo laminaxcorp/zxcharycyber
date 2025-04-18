@@ -1,7 +1,7 @@
-
+![Untitled2_20250418131600](https://github.com/user-attachments/assets/ebda229a-1612-40f2-a8f0-e4b23d8ecb9d)
 ***zxcharycyber***
    .    ***ZXCHARY  .✦ CYB3R*** !
-![CrystalCove_LaminaxSign](https://github.com/user-attachments/assets/e7d855ae-c977-4a9c-aedd-b9b6ea9a6cd5)
+   ![Untitled2_20250418131600](https://github.com/user-attachments/assets/ebda229a-1612-40f2-a8f0-e4b23d8ecb9d)
 
 
 .   [strwpg](https://abblesshop.straw.page) ─ discord ─ atabook
